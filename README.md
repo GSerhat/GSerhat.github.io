@@ -1,1 +1,0 @@
-# GSerhat.github.io
